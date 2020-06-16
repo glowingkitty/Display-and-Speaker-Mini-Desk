@@ -1,3 +1,5 @@
+![Display & Speaker Mini Desk](images/headerimage.jpg "Display & Speaker Mini Desk")
+
 Fix your Portable Display Stand and Bose SoundLink Micro Stand on a mini desk.
 
 Want to support the development and stay updated?
